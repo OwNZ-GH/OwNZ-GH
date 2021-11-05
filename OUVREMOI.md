@@ -1,0 +1,5 @@
+- salut je suis OwNZ-GH j'ai 14ans. 
+- je suis passionné par l'informatique 
+- j'apprends le Html, c++, le sql... et bientôt le JS (c dur quand même) 
+- je suis un apprenti devlopeur FiveM
+- je suis fondateur et cherche une équipe pour le projet Dreamlife v2 🔥
